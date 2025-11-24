@@ -76,6 +76,7 @@
 - **Email:** 79155090055@ya.ru  
 - **Telegram:** [@SergeyLatynin](https://t.me/SergeyLatynin)
 - **HeadHunter:** [Посмотреть резюме](https://orel.hh.ru/resume/c7c8e0bdff047e1b130039ed1f54486c704359)
+- **LinkedIn**: [Сергей Латынин](https://ru.linkedin.com/in/сергей-латынин-a11502392)
 - **Полное портфолио с артефактами:** [Yonote](https://latynin.yonote.ru/share/d9f7008e-fa52-4bfd-8f60-6344da5cba42)
 
 ---
